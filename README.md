@@ -1,1 +1,1 @@
-[GitHub Pages](https://toshiteshigure.github.io/characters-of-gravity-falls/)
+[GitHub Pages](https://tsuyune.github.io/characters-of-gravity-falls/)
